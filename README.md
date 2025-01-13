@@ -21,4 +21,4 @@ Most recently, I built [Telegraph](https://telegraph-notify.github.io/), a drop-
 
 ### ⚡ Fun fact
 
-I regularly train in Muay Thai and have my eyes set on competing 🥊
+I love to train and compete in Muay Thai - an exhilarating and humbling experience! 🥊
